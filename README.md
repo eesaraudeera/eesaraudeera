@@ -1,12 +1,11 @@
-### Hi there 👋  My name is Eesara. I am 15 years old . my school name is vidyartha college it was best for rugby,boxin,chess,football, and table tenis.my hobby is playing football and swimming while im' doing this sports my main sport is athletic i am a champion in vidyartha college 3 times . i'm best for football it build stamina it is good for our health. my football idolis critiano ronaldo and the best goal keeper idol is leiv yashin. and swimming is my best sport to get more gold medils,silver medils,and broze medils. i'm a good at translating.my future ambition is to be a pilot.    
+### Hi there 👋 𝐌𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐄𝐞𝐬𝐚𝐫𝐚. 𝐈 𝐚𝐦 𝟏𝟓 𝐲𝐞𝐚𝐫𝐬 𝐨𝐥𝐝 . 𝐦𝐲 𝐬𝐜𝐡𝐨𝐨𝐥 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐯𝐢𝐝𝐲𝐚𝐫𝐭𝐡𝐚 𝐜𝐨𝐥𝐥𝐞𝐠𝐞 𝐢𝐭 𝐰𝐚𝐬 𝐛𝐞𝐬𝐭 𝐟𝐨𝐫 𝐫𝐮𝐠𝐛𝐲,𝐛𝐨𝐱𝐢𝐧,𝐜𝐡𝐞𝐬𝐬,𝐟𝐨𝐨𝐭𝐛𝐚𝐥𝐥, 𝐚𝐧𝐝 𝐭𝐚𝐛𝐥𝐞 𝐭𝐞𝐧𝐢𝐬.𝐦𝐲 𝐡𝐨𝐛𝐛𝐲 𝐢𝐬 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 𝐟𝐨𝐨𝐭𝐛𝐚𝐥𝐥 𝐚𝐧𝐝 𝐬𝐰𝐢𝐦𝐦𝐢𝐧𝐠 𝐰𝐡𝐢𝐥𝐞 𝐢𝐦' 𝐝𝐨𝐢𝐧𝐠 𝐭𝐡𝐢𝐬 𝐬𝐩𝐨𝐫𝐭𝐬 𝐦𝐲 𝐦𝐚𝐢𝐧 𝐬𝐩𝐨𝐫𝐭 𝐢𝐬 𝐚𝐭𝐡𝐥𝐞𝐭𝐢𝐜 𝐢 𝐚𝐦 𝐚 𝐜𝐡𝐚𝐦𝐩𝐢𝐨𝐧 𝐢𝐧 𝐯𝐢𝐝𝐲𝐚𝐫𝐭𝐡𝐚 𝐜𝐨𝐥𝐥𝐞𝐠𝐞 𝟑 𝐭𝐢𝐦𝐞𝐬 . 𝐢'𝐦 𝐛𝐞𝐬𝐭 𝐟𝐨𝐫 𝐟𝐨𝐨𝐭𝐛𝐚𝐥𝐥 𝐢𝐭 𝐛𝐮𝐢𝐥𝐝 𝐬𝐭𝐚𝐦𝐢𝐧𝐚 𝐢𝐭 𝐢𝐬 𝐠𝐨𝐨𝐝 𝐟𝐨𝐫 𝐨𝐮𝐫 𝐡𝐞𝐚𝐥𝐭𝐡. 𝐦𝐲 𝐟𝐨𝐨𝐭𝐛𝐚𝐥𝐥 𝐢𝐝𝐨𝐥𝐢𝐬 𝐜𝐫𝐢𝐭𝐢𝐚𝐧𝐨 𝐫𝐨𝐧𝐚𝐥𝐝𝐨 𝐚𝐧𝐝 𝐭𝐡𝐞 𝐛𝐞𝐬𝐭 𝐠𝐨𝐚𝐥 𝐤𝐞𝐞𝐩𝐞𝐫 𝐢𝐝𝐨𝐥 𝐢𝐬 𝐥𝐞𝐢𝐯 𝐲𝐚𝐬𝐡𝐢𝐧. 𝐚𝐧𝐝 𝐬𝐰𝐢𝐦𝐦𝐢𝐧𝐠 𝐢𝐬 𝐦𝐲 𝐛𝐞𝐬𝐭 𝐬𝐩𝐨𝐫𝐭 𝐭𝐨 𝐠𝐞𝐭 𝐦𝐨𝐫𝐞 𝐠𝐨𝐥𝐝 𝐦𝐞𝐝𝐢𝐥𝐬,𝐬𝐢𝐥𝐯𝐞𝐫 𝐦𝐞𝐝𝐢𝐥𝐬,𝐚𝐧𝐝 𝐛𝐫𝐨𝐳𝐞 𝐦𝐞𝐝𝐢𝐥𝐬. 𝐢'𝐦 𝐚 𝐠𝐨𝐨𝐝 𝐚𝐭 𝐭𝐫𝐚𝐧𝐬𝐥𝐚𝐭𝐢𝐧𝐠.𝐦𝐲 𝐟𝐮𝐭𝐮𝐫𝐞 𝐚𝐦𝐛𝐢𝐭𝐢𝐨𝐧 𝐢𝐬 𝐭𝐨 𝐛𝐞 𝐚 𝐩𝐢𝐥𝐨𝐭.
 
 
-- 🔭 I’m currently working on React and git hub
-- 🌱 I’m currently learning art.i like to draw art
-- 👯 I’m looking to collaborate like typing like html and game devoloping
+- 🔭 I’m currently working 𝐨𝐧 𝐑𝐞𝐚𝐜𝐭 𝐚𝐧𝐝 𝐠𝐢𝐭 𝐡𝐮𝐛
+- 🌱 I’m currently learning 𝐢 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐯𝐢𝐬𝐢𝐭 𝐩𝐥𝐚𝐜𝐞𝐬
+- 👯 I’m looking to collaborate 𝐥𝐢𝐤𝐞 𝐭𝐲𝐩𝐢𝐧𝐠 𝐥𝐢𝐤𝐞 𝐡𝐭𝐦𝐥 𝐚𝐧𝐝 𝐠𝐚𝐦𝐞 𝐝𝐞𝐯𝐨𝐥𝐨𝐩𝐢𝐧𝐠
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: You can reach me through GitHub.
+- 📫 How to reach me: 𝐘𝐨𝐮 𝐜𝐚𝐧 𝐫𝐞𝐚𝐜𝐡 𝐦𝐞 𝐭𝐡𝐫𝐨𝐮𝐠𝐡 𝐆𝐢𝐭𝐇𝐮𝐛.
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Creeper, the first Virus It is scary to acquire viruses on your computer because chances are your files and safety could be compromised. Ever wondered where it all started?
-It was in 1971 that the first-ever computer virus emerged. The creators intended to experiment and analyze how it could spread across the files and computer itself. When it did, the screen showed the message: “I’m the creeper, catch if you can!”
+- ⚡ Fun fact: 𝐂𝐫𝐞𝐞𝐩𝐞𝐫, 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭 𝐕𝐢𝐫𝐮𝐬 𝐈𝐭 𝐢𝐬 𝐬𝐜𝐚𝐫𝐲 𝐭𝐨 𝐚𝐜𝐪𝐮𝐢𝐫𝐞 𝐯𝐢𝐫𝐮𝐬𝐞𝐬 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐜𝐡𝐚𝐧𝐜𝐞𝐬 𝐚𝐫𝐞 𝐲𝐨𝐮𝐫 𝐟𝐢𝐥𝐞𝐬 𝐚𝐧𝐝 𝐬𝐚𝐟𝐞𝐭𝐲 𝐜𝐨𝐮𝐥𝐝 𝐛𝐞 𝐜𝐨𝐦𝐩𝐫𝐨𝐦𝐢𝐬𝐞𝐝. 𝐄𝐯𝐞𝐫 𝐰𝐨𝐧𝐝𝐞𝐫𝐞𝐝 𝐰𝐡𝐞𝐫𝐞 𝐢𝐭 𝐚𝐥𝐥 𝐬𝐭𝐚𝐫𝐭𝐞𝐝? 𝐈𝐭 𝐰𝐚𝐬 𝐢𝐧 𝟏𝟗𝟕𝟏 𝐭𝐡𝐚𝐭 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭-𝐞𝐯𝐞𝐫 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐯𝐢𝐫𝐮𝐬 𝐞𝐦𝐞𝐫𝐠𝐞𝐝. 𝐓𝐡𝐞 𝐜𝐫𝐞𝐚𝐭𝐨𝐫𝐬 𝐢𝐧𝐭𝐞𝐧𝐝𝐞𝐝 𝐭𝐨 𝐞𝐱𝐩𝐞𝐫𝐢𝐦𝐞𝐧𝐭 𝐚𝐧𝐝 𝐚𝐧𝐚𝐥𝐲𝐳𝐞 𝐡𝐨𝐰 𝐢𝐭 𝐜𝐨𝐮𝐥𝐝 𝐬𝐩𝐫𝐞𝐚𝐝 𝐚𝐜𝐫𝐨𝐬𝐬 𝐭𝐡𝐞 𝐟𝐢𝐥𝐞𝐬 𝐚𝐧𝐝 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐢𝐭𝐬𝐞𝐥𝐟. 𝐖𝐡𝐞𝐧 𝐢𝐭 𝐝𝐢𝐝, 𝐭𝐡𝐞 𝐬𝐜𝐫𝐞𝐞𝐧 𝐬𝐡𝐨𝐰𝐞𝐝 𝐭𝐡𝐞 𝐦𝐞𝐬𝐬𝐚𝐠𝐞: “𝐈’𝐦 𝐭𝐡𝐞 𝐜𝐫𝐞𝐞𝐩𝐞𝐫, 𝐜𝐚𝐭𝐜𝐡 𝐢𝐟 𝐲𝐨𝐮 𝐜𝐚𝐧!”
